@@ -7,5 +7,5 @@
  ![image_2](https://github.com/user-attachments/assets/454240f3-085c-4f82-bf9e-94e89e96b70e)
 　⠀ㅤㅤㅤㅤㅤ　⠀ㅤㅤㅤㅤㅤ　⠀ㅤㅤ  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀‘⠀⠀Dₑcₑₚₜᵢᵥₑₗy⠀⠀ₛwₑₑₜ⠀⠀Gᵢᵣₗ⠀⠀’
  
-ㅤ  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅤ  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅤ  ⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31weq5lkewwdr3ornsygit5tnboq&cover_image=true&theme=novatorem&show_offline=false&background_color=538aa1&interchange=true&profanity=false&bar_color=c8d2de&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+ㅤ  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅤ  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31weq5lkewwdr3ornsygit5tnboq&cover_image=true&theme=novatorem&show_offline=false&background_color=538aa1&interchange=true&profanity=false&bar_color=c8d2de&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ![image_1](https://github.com/user-attachments/assets/18210827-396a-4d38-9950-f074d344e285)
