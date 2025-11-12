@@ -1,5 +1,7 @@
 <img width="1052" height="400" alt="s6jx1i" src="https://github.com/user-attachments/assets/a81a1f1f-5bf7-4da8-a264-891dedc3e93b" />
 
+[EASY READ.](https://rentry.co/purewolf) 
+
 　⠀ㅤㅤㅤㅤㅤ　⠀ㅤㅤㅤㅤㅤ　⠀ㅤㅤㅤㅤㅤ　⠀ㅤㅤㅤㅤㅤ໒ ᩧੑ𓏼ཾ. ·̭ .𓏼ིྀ১　⠀　⠀dott𓈒ie　⠀　⠀ᣟৎ˳
  
 
